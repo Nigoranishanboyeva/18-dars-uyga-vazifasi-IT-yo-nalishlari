@@ -1,5 +1,5 @@
 # 18-dars-uyga-vazifasi-IT-yo-nalishlari
-2-topshiriqlar — namunaviy javoblar
+2-topshiriqlar
 1-topshiriq. Yo‘nalishni toping (20 ball)
 Vazifa
 
