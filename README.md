@@ -1,0 +1,1 @@
+# 18-dars-uyga-vazifasi-IT-yo-nalishlari
